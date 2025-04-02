@@ -1,3 +1,0 @@
-# min stroem readme
-
-tekst
